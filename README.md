@@ -1,0 +1,2 @@
+# zackbeydevke
+Paylaşmak KESİNLİKLE YASAKTIR 
